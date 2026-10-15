@@ -6,6 +6,7 @@
 
 💡 *图片来源声明：该图源自 [https://www.cererfi.com/auzhou/61.html](https://www.cererfi.com/auzhou/61.html) 未经授权禁止用于商业用途。*
 
+---
 塔斯马尼亚大学在生命科学、医学及药学领域的研究实力高居世界前列。对其极具代表性的医疗王牌专业——**临床药学研究生文凭（Graduate Diploma of Clinical Pharmacy）** 的最新真实证书样本进行微观解析，能够帮助各验证机构建立精准的视觉参照。本文将为您深度拆解 UTAS 毕业证的排版特征、物理防伪矩阵以及官方数字化核验渠道。
 
 ---
