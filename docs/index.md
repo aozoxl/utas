@@ -4,7 +4,6 @@
 
 <img width="565" height="800" alt="澳大利亚塔斯马尼亚大学毕业证样本及学位证文凭样本模版(University of Tasmania Diploma/Certificate of Degree)" src="utas-diploma.jpg" />
 
-
 塔斯马尼亚大学在生命科学、医学及药学领域的研究实力高居世界前列。对其极具代表性的医疗王牌专业——**临床药学研究生文凭（Graduate Diploma of Clinical Pharmacy）** 的最新真实证书样本进行微观解析，能够帮助各验证机构建立精准的视觉参照。本文将为您深度拆解 UTAS 毕业证的排版特征、物理防伪矩阵以及官方数字化核验渠道。
 
 ## 2026款UTAS官方证书整体视觉布局：百年沙岩学府的古典美学与庄重格调
